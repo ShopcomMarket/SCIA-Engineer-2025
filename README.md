@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/scia-engineer-2025/
 Product Price : 8,513 $
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
